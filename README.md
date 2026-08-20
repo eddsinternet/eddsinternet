@@ -1,6 +1,6 @@
 <img height="90" alt="1" src="https://github.com/user-attachments/assets/8179b878-9803-4074-ad9b-d2a500a68042" />
 
-
+YOOO! hello everywon!! 🥤 ݁˖ my name is Edd and i spend way too much time drawing, drinking cola and talking about fictional idiots. i love Eddsworld way too much (obviously), so feel free to come talk to me about your ocs, aus or whatever random thing you've been obsessed with lately!!
 
 <img width="400" height="59" alt="tumblr_5a01184d6c4d1a61c361f97cdb0d531c_d998f803_400" src="https://github.com/user-attachments/assets/724f50d8-d8db-4956-b1bf-5612b131d7f2" />
 
