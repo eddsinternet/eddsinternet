@@ -1,5 +1,5 @@
 <img width="600" alt="1" src="https://github.com/user-attachments/assets/8179b878-9803-4074-ad9b-d2a500a68042" />
-<img width="900" height="80" alt="image" src="https://github.com/user-attachments/assets/96722b7b-c38c-422c-a78f-7d675b496042" />
+<img width="900" height="100" alt="image" src="https://github.com/user-attachments/assets/96722b7b-c38c-422c-a78f-7d675b496042" />
 
 <img width="20" height="20" alt="3" src="https://github.com/user-attachments/assets/d6cc1834-c356-40f4-b269-791bb81bec85" /> YOOO! hello everywon!! 🥤 ݁˖ my name is Edd and i spend way too much time drawing, drinking cola and talking about fictional idiots. i love Eddsworld way too much (obviously), so feel free to come talk to me about your ocs, aus or whatever random thing you've been obsessed with lately!! <img width="20" height="20" alt="13" src="https://github.com/user-attachments/assets/e3f81dac-1794-465b-8e3f-66e9b49b50f2" />
 
