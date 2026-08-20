@@ -17,6 +17,6 @@ i'm a huge fan of silly characters, chaotic stories and anything that makes me l
 
 ﹕🧃 . DNI : EDUARDO (¬`‸´¬), overly sensitive people, weirdos, people who start unnecessary drama, people who are disrespectful to artists, and anyone who thinks cola is overrated. sorry but that's where i draw the line. <img width="18" height="18" alt="3" src="https://github.com/user-attachments/assets/2f783ea1-3333-4fc5-88ff-215a3d7a744c" />
 
-<img width="600" height="120" alt="image" src="https://github.com/user-attachments/assets/f28d4f7b-e71b-4dd2-9e7c-5db281298b05" /> <img width="386" height="285" alt="tumblr_7b5b62d3b4778e154b2fee9b381ef4af_2285b812_400" src="https://github.com/user-attachments/assets/cf7801cb-4d23-4839-ba7d-6d9c702775c4" /> <img width="537" height="680" alt="image" src="https://github.com/user-attachments/assets/735d9d41-28c8-4594-8351-32a29f31a6c8" />
+<img width="600" height="120" alt="image" src="https://github.com/user-attachments/assets/f28d4f7b-e71b-4dd2-9e7c-5db281298b05" /> <img width="386" height="285" alt="tumblr_7b5b62d3b4778e154b2fee9b381ef4af_2285b812_400" src="https://github.com/user-attachments/assets/cf7801cb-4d23-4839-ba7d-6d9c702775c4" /> <img width="386" height="285" alt="image" src="https://github.com/user-attachments/assets/735d9d41-28c8-4594-8351-32a29f31a6c8" />
 
 
