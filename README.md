@@ -13,7 +13,7 @@
 
 <img width="20" height="20" alt="15" src="https://github.com/user-attachments/assets/254178b1-8a1c-4ce9-9987-dec8c20d3195" /> i'm usually either drawing something, listening to music, messing around with my friends or wondering why everything around me somehow turns into a disaster. if you wanna talk, just come say hi!! i don't bite. probably.
 
-i'm a huge fan of silly characters, chaotic stories and anything that makes me laugh. i also really like meeting other artists, so PLEASE show me your art if you want!! i'll probably stare at it for five minutes and then start talking about it way too much. :]
+i'm a huge fan of silly characters, chaotic stories and anything that makes me laugh. <img width="20" height="20" alt="27" src="https://github.com/user-attachments/assets/fafceb1f-ebe2-45ce-ae73-e0230f41f9b9" />i also really like meeting other artists, so PLEASE show me your art if you want!! i'll probably stare at it for five minutes and then start talking about it way too much. :]
 
 <img width="600" alt="tumblr_5a01184d6c4d1a61c361f97cdb0d531c_d998f803_400" src="https://github.com/user-attachments/assets/724f50d8-d8db-4956-b1bf-5612b131d7f2" />
 
