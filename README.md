@@ -5,7 +5,7 @@
 
 <img width="400" height="59" alt="tumblr_5a01184d6c4d1a61c361f97cdb0d531c_d998f803_400" src="https://github.com/user-attachments/assets/724f50d8-d8db-4956-b1bf-5612b131d7f2" />
 
-﹕🧃 . DNI : EDUARDO (¬`‸´¬), overly sensitive people, weirdos, people who start unnecessary drama and anyone who thinks cola is overrated.<img width="46" height="42" alt="coke" src="https://github.com/user-attachments/assets/932fb518-ecca-48e7-8e0a-3971270e61f8" /> sorry but that's where i draw the line.<img width="18" height="18" alt="3" src="https://github.com/user-attachments/assets/2f783ea1-3333-4fc5-88ff-215a3d7a744c" />
+﹕🧃 . DNI : EDUARDO (¬`‸´¬), overly sensitive people, weirdos, people who start unnecessary drama and anyone who thinks cola is overrated. sorry but that's where i draw the line.<img width="18" height="18" alt="3" src="https://github.com/user-attachments/assets/2f783ea1-3333-4fc5-88ff-215a3d7a744c" />
 
 <img width="600" height="120" alt="image" src="https://github.com/user-attachments/assets/f28d4f7b-e71b-4dd2-9e7c-5db281298b05" />
 
