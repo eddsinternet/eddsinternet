@@ -19,5 +19,5 @@ i'm a huge fan of silly characters, chaotic stories and anything that makes me l
 
 <img width="600" height="120" alt="image" src="https://github.com/user-attachments/assets/f28d4f7b-e71b-4dd2-9e7c-5db281298b05" />  <img width="386" height="285" alt="image" src="https://github.com/user-attachments/assets/735d9d41-28c8-4594-8351-32a29f31a6c8" />
 Matching pics with my silly friends
-
+HELP WHY ITISJ SO UGLY
 
